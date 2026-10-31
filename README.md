@@ -253,3 +253,17 @@ NashaMukt aims to encourage safer communities by providing an accessible way to 
   🛡️ <strong>NashaMukt — Report Responsibly. Build a Safer Tomorrow.</strong>
 </p>
 <img width="2902" height="1540" alt="image" src="https://github.com/user-attachments/assets/cf1dbc22-0f00-4906-ae20-3e0041320688" />
+<img width="2926" height="1634" alt="image" src="https://github.com/user-attachments/assets/bb4d3449-9895-4bab-a036-be45775efc22" />
+<img width="2810" height="1650" alt="image" src="https://github.com/user-attachments/assets/ea92cc56-d54c-4af8-a81a-2d84229d44f0" /><img width="2896" height="1692" alt="image" src="https://github.com/user-attachments/assets/e4a0fdb7-07ca-4883-b9ce-61525ce71968" />
+<img width="2896" height="1692" alt="image" src="https://github.com/user-attachments/assets/5b394d76-92d0-41da-89a6-87b8bf56d06a" />
+<img width="2604" height="1622" alt="image" src="https://github.com/user-attachments/assets/46f64f5a-2dae-4f40-9af3-720fe9d00553" />
+<img width="2896" height="1692" alt="image" src="https://github.com/user-attachments/assets/4e692d62-3f5f-4fe5-bef0-e2bcc959c6de" />
+<img width="2896" height="1692" alt="image" src="https://github.com/user-attachments/assets/560acaa1-3902-4b38-9425-05e8971e42aa" />
+<img width="1858" height="1460" alt="image" src="https://github.com/user-attachments/assets/71707c69-41f0-4d13-9786-858b7c494094" />
+
+
+
+
+
+
+
